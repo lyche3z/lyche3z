@@ -5,7 +5,7 @@ pansexual / demisexual
 [STRAWPAGE](https://lyche3z.straw.page/) - [INTERESTS](https://rentry.co/lilzyinterests)
 
 ## BFI
-- i'm a pretty awkward person, so i rarely interact first, i'm also very bad at keeping up conversation TT
+- i'm a pretty awkward person with terriblr social anxiety, so i rarely interact first, i'm also very bad at keeping up conversation TT
 
 - i'm fine with sharing oshis, i'd love to talk about my favs with someone all day ^^
 
