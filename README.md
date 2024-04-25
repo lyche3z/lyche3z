@@ -2,7 +2,7 @@ lily / ririi ✭ any pronouns
 
 pansexual / demisexual
 
-[STRAWPAGE](https://lyche3z.straw.page/) - [OSHI](https://listography.com/2641421386/crushes/my_oshis_comfort_characters)
+[STRAWPAGE](https://lyche3z.straw.page/) - [INTERESTS](https://rentry.co/lilzyinterests)
 
 ## BFI
 - i'm a pretty awkward person, so i rarely interact first, i'm also very bad at keeping up conversation TT
