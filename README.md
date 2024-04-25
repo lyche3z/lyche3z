@@ -1,6 +1,6 @@
 lily / ririi ✭ any pronouns
 
-pansexual / demisexual
+pansexual / demiromantic
 
 [STRAWPAGE](https://lyche3z.straw.page/) - [INTERESTS](https://rentry.co/lilzyinterests)
 
