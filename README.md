@@ -30,7 +30,7 @@ Please do not copy 100% of my skins, inspiration is allowed but please credit me
 
 - making offensive/terrible jokes about my friends and my favourite characters
 
-- freaky n weird in general
+- freaky n weird shippers
 
 ## Socials
 
