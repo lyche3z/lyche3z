@@ -21,8 +21,7 @@ friendlist always welcome to int with me
 
 ⛔ = do not disturb, prefer staying with friends
 
-Please do not copy 100% of my skins, inspiration is allowed but please credit me as the OG -
-[Lists of skins that I made](https://docs.google.com/document/d/1Dvy6etN5pVh0YdCVMraagaGsLJP1jfYGSQahmVL14OM/edit?usp=sharing)
+Please do not copy 100% of my skins, inspiration is allowed but please credit me as the OG
 
 ## DNI
 - racist, homophobic, misogynistic, transphobic, etc...
