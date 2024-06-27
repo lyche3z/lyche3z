@@ -38,7 +38,7 @@ Please do not copy 100% of my skins, inspiration is allowed but please credit me
 
 @lilzyy_o - @ririichiee
 
-**tumblr:**
+**tumblr + tiktok:**
 
 lyche3z
 
