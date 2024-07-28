@@ -21,7 +21,7 @@ friendlist always welcome to int with me
 
 ⛔ = do not disturb, prefer staying with friends
 
-Please do not copy 100% of my skins, inspiration is allowed but please credit me as the OG
+Please do not copy 100% of my skins, inspiration is allowed if asked beforehand
 
 ## DNI
 - racist, homophobic, misogynistic, transphobic, etc...
@@ -31,6 +31,8 @@ Please do not copy 100% of my skins, inspiration is allowed but please credit me
 - making offensive/terrible jokes about my friends and my favourite characters
 
 - freaky n weird shippers
+  
+- oc x canon/ selfship hater
 
 ## Socials
 
